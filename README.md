@@ -22,6 +22,25 @@
 
 **Hasil Percobaan**
 
+**7.1**
 
-https://github.com/user-attachments/assets/20bacb44-5b1e-4532-be2b-2d8029763585
+
+
+https://github.com/user-attachments/assets/5d900bae-541b-4a3e-9a92-caccce4d6686
+
+
+**7.2**
+
+
+
+https://github.com/user-attachments/assets/c5db3d7f-2673-47de-ae14-ea7626e30625
+
+
+**7.3**
+
+
+
+https://github.com/user-attachments/assets/b1392ae7-368c-4cdc-8bc0-381ad26f8eb8
+
+
 
